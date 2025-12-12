@@ -12,6 +12,7 @@
 **Free Download Steal a Brainrot Script 2025 – Auto Steal Aura + Infinite Points + God Mode + Fly + Unlock All UGC Skins Emotes – #1 Brainrot Hack Undetected December 2025**
 
 **steal a brainrot script 2025, brainrot hack roblox, auto steal aura brainrot, infinite points brainrot, god mode fly undetected**
+![c12313v13vasvd](https://github.com/user-attachments/assets/d3c30f53-0fcb-42ea-9e73-304efa64da70)
 
 </div>
 
